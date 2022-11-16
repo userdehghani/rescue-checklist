@@ -19,3 +19,7 @@
 - [ ] Contact with friends with jokes, memes, ...
 
 - [ ] Hug and Hug and HuuuuG. (earth wire)
+
+- [ ] Journal the routins, struggles, gratitude, goals, etc in notion. (full-screen, turn on 'do not disturb', dark mode)
+
+- [ ] care about the environment as small as a glass of water on the table.
