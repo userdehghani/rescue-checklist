@@ -12,4 +12,10 @@
 
 ### To-Do List
 
-- [ ] Play [amoo-shahram](https://music.apple.com/us/artist/shahram-shabpareh/90056421) playlist
+- [ ] Play [amoo-shahram](https://music.apple.com/us/artist/shahram-shabpareh/90056421) playlist.
+
+- [ ] Smile in the mirror/camera and see how are you pretty.
+
+- [ ] Contact with friends with jokes, memes, ...
+
+- [ ] Hug and Hug and HuuuuG. (earth wire)
